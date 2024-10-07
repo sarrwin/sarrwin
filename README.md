@@ -8,7 +8,7 @@
 
 - 📫 How to reach me : **sarrwin77@gmail.com**
 
-- ⚡ Fun fact : **Not tired of watching movies and loyal ManUtd fan❤️**
+- ⚡ Fun fact : **love watching movies  and loyal ManUtd fan❤️**
 
 
 <h3 align="left">Languages and Tools:</h3>
